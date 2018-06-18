@@ -17,6 +17,17 @@ Daarvoor heb ik ook nog 1 jaar kunstacademie gedaan.
 ----------------------------------------
 ## Werkveld, toekomst,
 ----------------------------------------
+
+1) Verandering doel
+2) Meer data
+3) Geen niche meer
+4) Cartografie opnieuw uitvinden. 
+5) Combinatie van techniek en design geworden.
+6) Nieuwe baan >> Meer vraag
+7) Toekomst overbodig? ...
+
+
+
 # Ik ben dus een Web Cartograaf.  En misschien worden jullie dat ook wel! 
 Wat houd het in om Web Cartograaf te zijn?  
 Ik ga jullie eerst meenemen in wat het inhoud om moderene cartograaf te zijn. 
